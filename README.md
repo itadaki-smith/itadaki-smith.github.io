@@ -1,1 +1,0 @@
-# itadaki-smith.github.io
